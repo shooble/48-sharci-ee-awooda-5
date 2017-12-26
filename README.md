@@ -18,3 +18,5 @@ Sumcada waa sida gacaliso oo kale, waxaana loo baahanyahay in si taxadir leh loo
 
 Mida kale haduu qof weerar ku qaado qof kale, waxa marwalbo guul daresanayo qofka sumcada leh haduu isku dayo inuu uu fal celiyo, weliba falcelis aargoosi u muuqda, hadaadan cadawgaada sumcadiisa si maskaxaysan aadan dhulka ula jarin, taadaa dhulka ka hoos mari doonta.
 
+
+MAGAC AAN SUMCAD LAHEEN WAA SIDEE DEB DENSAN.
